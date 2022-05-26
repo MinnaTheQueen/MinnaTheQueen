@@ -1,3 +1,6 @@
+Ohayo! Eu sou Minna, sua Desenvolvedora pessoal e Amiga! 
+> Ohayo! I'm Minna, your personal Developer and Friend!
+
 ##
   
 ### Onde me encontrar
